@@ -4,7 +4,7 @@ Atualmente sou estudante de **Ciência da Computação**, estou sempre buscando 
 
 ## 🌐 Minhas Redes Sociais
 
-* **LinkedIn:** [Acesse meu LinkedIn](AQUI_VAI_O_SEU_LINK_DO_LINKEDIN)
+* **LinkedIn:** [Acesse meu LinkedIn](www.linkedin.com/in/joão-inácio-dos-santos-esteves-7b5274318)
 * **Instagram:** [@joaoinacio321](https://www.instagram.com/joaoinacio321)
 
 <br />
